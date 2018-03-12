@@ -1,0 +1,1 @@
+short stories  Copyright (C) 2017-2018  Cord Phelps
